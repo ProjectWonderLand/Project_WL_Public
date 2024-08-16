@@ -14,7 +14,7 @@
 
 <br/><br/>
 
-[👉팀 노션으로 이동](https://www.notion.so/teamsparta/B10-WonderLand-ddb2f7eefb5241cb9e80999d687d9b27)
+[👉WonderLand 브로셔 이동](https://www.notion.so/teamsparta/B10-WonderLand-ddb2f7eefb5241cb9e80999d687d9b27)
 <br/><br/>
 
 [➡️게임 플레이하기](https://amor152394.itch.io/wonderland)
